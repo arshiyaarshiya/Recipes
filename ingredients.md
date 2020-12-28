@@ -1,0 +1,1 @@
+Maida, sugar,  baking powder, baking soda, curd, oil , Pineapple essance, milk.
